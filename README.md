@@ -32,8 +32,6 @@ ing Screenshot (14).png…]()
 ![Screenshot (7)](https://github.com/mdmahfuz7050/Child_CareFrt/assets/112500380/cbe88a4b-f9e9-410f-af5d-dbd14fa31f1d)
 ![Screenshot (7)](https://github.com/mdmahfuz7050/Child_CareFrt/assets/112500380/cbe88a4b-f9e9-410f-af5d-dbd14fa31f1d)
 ![Screenshot (6)](https://github.com/mdmahfuz7050/Child_CareFrt/assets/112500380/6ba78a78-a021-4dac-b6e7-894ff49e5068)
-![Screenshot (5)](https://github.com/mdmahfuz7050/Child_CareFrt/assets/112500380/c8ce6b7f-fdfa-4531-a69b-89f4d97d647b)
-![Screenshot (13)](https://github.com/mdmahfuz7050/Child_CareFrt/assets/112500380/c290095f-9fcc-4a62-80be-cefc036236c4)
 ![Screenshot (13)](https://github.com/mdmahfuz7050/Child_CareFrt/assets/112500380/c290095f-9fcc-4a62-80be-cefc036236c4)
 
 
